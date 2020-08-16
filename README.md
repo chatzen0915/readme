@@ -23,8 +23,41 @@
 2.怪物
 在某個夜晚，突如其來的XXX來襲，並把大量人類吞噬，此時顏亦甫於心不忍，將能夠阻止怪物侵略的火把賜予人類，但人類並沒有學會分享，反而為了爭奪火把做出骨肉相殘的行為。
 
-3. 大洪水
+3.大洪水
 顏亦甫看到人類如此敗壞不堪，便降下一場洪水借以洗刷萬物，但降水前顏亦甫告知了無辜的火把一族，賜予他們翅膀借以躲避此次劫難，但無私的火把違背顏亦甫的心意，帶著人類一同躲過了這場洪水。
 
 4.苡庭
 三千年前在虛空中沉睡的苡庭，被突如其來的洪水喚醒，她是暴食與醜陋的化身，但一現身便被火把壓制著，雖然偶爾會洩漏出一絲惡意，但封印尚還完整，目前她的肉體是作為關押罪大惡極的地方。 
+
+
+Congratulations on stepping into the world of the greatest torch!
+This is one of the few right decisions you have ever made in your life.
+You can understand all the functions and some hidden features of this mod by reading through this book.
+Everything in Torchrism can be experienced using vanilla Minecraft items, and all the designs are aimed to be particle hoping that it can accompany players through the whole game.
+
+God said, let there be torches: and there were torches in the world.
+I said, needs to be organised: and there was Torchrism.
+
+IF spent six days constructing the material world in the void and chaos. Light, atmosphere, dry-lands, plants, celestial bodies, animals and humans were created in order.
+On the seventh day, he created torches and its holy land and set the day as "Torch Day".
+Torch blooming: Four chapters
+
+1.Torch Yggdrasil
+2.Monster
+3.The flooding 
+4.Yeeting
+
+
+1.Torch Yggdrasil.
+IF said every torch on the world is a relic, and was originated from the torch Yggdrasil.
+However, the cunning Kane got seduced by a squid, so he chopped the tree down into seven pieces that the balance of the world was severely destroyed. Kane and his people were expelled from the holy torch land, so humans had to work for their life and eventually return to dust.
+
+2.Monsters.
+One night, XXX suddenly came to attack and swallowed many people.
+IF couldn’t bear to see, so he provided them with torches but they didn’t learn to share. In contrary, for winning the torch, they harmed their siblings.
+
+3.The flooding.
+IF saw humans were corrupted and immoral, he then brought a flood to wash off everything in the world. Before the flooding came IF told the innocent torches and gave each of them a pair of wings so that they were free from this catastrophic disaster.
+However, the selfless torches went against IF’s intention and brought humans with them. Therefore, humans were able to survive.
+
+4.Yeeting
